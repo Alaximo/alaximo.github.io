@@ -1,4 +1,6 @@
-# UPDATE 05/10/2018
+# PRIVACY POLICY
+
+UPDATE 05/10/2018
 
 By installing mobile applications from the Alaximo Games company (Alaximo games) you consent to the transfer and processing of your data in accordance with the requirements of May 25, 2018 GDPR (EEA). Details on the site https://www.appodeal.ru/privacy-policy
 
